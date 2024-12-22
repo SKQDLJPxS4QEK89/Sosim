@@ -1,0 +1,2 @@
+# Sosim
+SoSIM推薦碼SKQDLJP / S4QEK89
